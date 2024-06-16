@@ -3,7 +3,7 @@
 
 
 About me:
-
+- 🖥️ Programming
 - 🌍 I have a deep interest in geopolitics and geography.
 - ⚙️ Admirer of the vast universe of mechanics and engines.
 - 📚 Driven by curiosity and a desire to learn.
